@@ -1,0 +1,2 @@
+# Tanul-s
+Tanulás
